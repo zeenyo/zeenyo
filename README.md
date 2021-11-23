@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zeenyo
-- 👀 I’m interested in rockhounding, creative coding, Rocket League, and The Dragonriders of Pern. 
+- 👀 I’m interested in creative coding, cryptocurrencies, Rocket League, rockhounding, and The Dragonriders of Pern. 
 - 🌱 I’m currently learning about myself, child-rearing, and various code languages!
 - 💞️ I’m looking to collaborate on creative outlets for streamers and gamers!
 - 📫 Reach me via email @ zeno.poopito@gmail.com
