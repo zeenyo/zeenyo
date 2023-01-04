@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Zeno (zee-no) // (they/them)
-- 👀 I’m interested in creative coding, blockchain tech, Rocket League, rockhounding, and currently reading The Dragonriders of Pern. 
+- 👀 I’m interested in creative coding, blockchain tech, Rocket League, and rockhounding. 
 - 🌱 I’m learning all the time! (Ask me about it!)
 - 💞️ I’m looking for work! 
 - 📫 Reach me via email @ zzzeenyo@gmail.com
